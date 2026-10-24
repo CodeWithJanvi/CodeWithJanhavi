@@ -6,7 +6,7 @@
 
 *Building clean, responsive & modern websites · Creating website templates and business dashboards · Editing videos & social media content*
 
-[LinkedIn](https://www.linkedin.com/in/janvi-lumbhani-1580ab2a9/) · [Instagram](https://www.instagram.com/iamjanvi_01_001) · [GitHub](https://github.com/CodeWithJanvi) · [Email](mailto:YOUR-EMAIL@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/janvi-lumbhani-1580ab2a9/) · [Instagram](https://www.instagram.com/iamjanvi_01_001) · [GitHub](https://github.com/CodeWithJanvi) · [Email](mailto:lumbhanijanvi59@gmail.com)
 
 💼 **Freelance:** Open · 🤝 **Collaborations:** Open · 📚 **Learning:** Always
 
